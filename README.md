@@ -11,7 +11,7 @@
   *Discord: cod3_4_life
   *Youtube: @DevilCraftRealm
   
-  - 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Life is no fun but we seek for it!
 
 <!---
