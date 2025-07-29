@@ -8,8 +8,8 @@
   
 - 📫 How to reach me
   *Instagram: Yunusemre_Korhasan
-  *Discord: cod3_4_life
-  *Youtube: @DevilCraftRealm
+  *Discord: Xyverixen / Xyverixen.de
+  *Youtube: https://youtube.com/@Xyverixen
   
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Life is no fun but we seek for it!
