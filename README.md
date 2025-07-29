@@ -8,11 +8,11 @@
   
 - 📫 How to reach me:
 
-Instagram: Yunusemre_Korhasan
+-> Instagram: Yunusemre_Korhasan
 
-Discord: Xyverixen / Xyverixen.de
+-> Discord: Xyverixen / Xyverixen.de
 
-Youtube: https://youtube.com/@Xyverixen
+-> Youtube: https://youtube.com/@Xyverixen
   
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Life is no fun but we seek for it!
