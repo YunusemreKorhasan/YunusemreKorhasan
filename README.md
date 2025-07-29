@@ -7,9 +7,10 @@
 - 💞️ I’m looking to collaborate on nothing?
   
 - 📫 How to reach me
-  *Instagram: Yunusemre_Korhasan
-  *Discord: Xyverixen / Xyverixen.de
-  *Youtube: https://youtube.com/@Xyverixen
+
+*Instagram: Yunusemre_Korhasan
+*Discord: Xyverixen / Xyverixen.de
+*Youtube: https://youtube.com/@Xyverixen
   
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Life is no fun but we seek for it!
