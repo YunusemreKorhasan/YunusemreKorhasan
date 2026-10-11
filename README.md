@@ -2,7 +2,7 @@
   
 - 👀 I’m interested in coding and learning new programming languages!
   
-- 🌱 I’m currently learning C++, C, HTML, CSS, JavaScript and mySQL
+- 🌱 I’m currently learning C++, C, HTML, CSS, JavaScript, SQL and Java!
   
 - 💞️ I’m looking to collaborate on nothing?
   
@@ -10,12 +10,12 @@
 
   -> Instagram: Yunusemre_Korhasan
 
-  -> Discord: Xyverixen / Xyverixen.de
+  -> Discord: Xyverixen
 
   -> Youtube: https://youtube.com/@Xyverixen
   
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Life is no fun but we seek for it!
+- ⚡ Fun fact: Coding is like a having a girlfriend. We don't understand them first but we're getting used to it.
 
 <!---
 YunusemreKorhasan/YunusemreKorhasan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
